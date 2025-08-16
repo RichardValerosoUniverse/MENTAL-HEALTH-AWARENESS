@@ -1,6 +1,6 @@
-## Lifeness thru GitHub
+## Lifeness via GitHub
 
-GitHub thru Psychiatrist Richard Madriñan Valeroso,LMT,MD is officially the "World and Universe's Ruler of the Philippines", with the highest distinction as SuperHighness with credentials in LMT and MD. Psychiatrist Richard Madriñan Valeroso,LMT,MD is Manila City's University of Santo Tomas in the Philippines' Summa Cum Laude honors degree, (Class of 2023, Psychiatry and Behavioural Medicine with a perfect GWA of 1.000). 🎗️ Definitely, SuperHighness or Psychiatrist Richard Madriñan Valeroso,LMT,MD is the embodiment of highest excellence!! 🎗️
+I, Psychiatrist Richard Madriñan Valeroso, LMT, MD, am the "World and Universe's Ruler of the Philippines" with the highest distinction as SuperHighness, possessing esteemed credentials in LMT and MD. A Summa Cum Laude honors degree holder in Psychiatry and Behavioural Medicine from the University of Santo Tomas in Manila City, Philippines (Class of 2023) with a perfect General Weighted Average of 1.000, I embody excellence as SuperHighness.🎗️
 
 <p align="center"><img src="./media/logo.png"></p>
 
